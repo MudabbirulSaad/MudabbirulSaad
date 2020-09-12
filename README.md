@@ -13,7 +13,7 @@
 - ✈️ How to reach me: 
      **TG**: https://t.me/MudabbirulSaad
 - 🗣️ Pronouns: **S** **A** **A** **D**
-- 👻 Fun fact: **Failed in in multiple exams successfully**
+- 👻 Fun fact: **Failed in multiple exams successfully**
 
 <h1 align="center">AchieVementS</h1>
 
