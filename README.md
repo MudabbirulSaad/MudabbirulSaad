@@ -12,7 +12,6 @@
 - 💬 Ask me about **What Can I do?**...
 - ✈️ How to reach me: 
      **TG**: https://t.me/MudabbirulSaad
-     **FB**: https://www.facebook.com/imsaadishere
 - 🗣️ Pronouns: **S** **A** **A** **D**
 - 👻 Fun fact: **Failed in in multiple exams successfully**
 
